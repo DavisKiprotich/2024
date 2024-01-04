@@ -10,7 +10,7 @@ This repository entails my day to day activities and plans for the coming year. 
 6. Investing.
 7. T3 certification.
 8. Book purchase(8 books) and book club resume.
-9. Cloud certifications learnt(4).
+9. Cloud certifications learned(4).
 
 Year Plan(1^st quarter)
 1. 2 books purchased.
