@@ -14,11 +14,13 @@ This repository entails my day to day activities and plans for the coming year. 
 
 Year Plan(1^st quarter)
 1. 2 books purchased.
-2. 3 real life projects built.
+2. 3 real life projects built : Portfolio website , Hotel management system, E-commerce website.
 3. Nextjs.
 4. Master application complete.
 5. T3 certification.
 6. Chicken house start.
+7. API lessons.
+   
 
 **Real life projects**
 - Portfolio Website
@@ -28,12 +30,17 @@ Year Plan(1^st quarter)
 
 
 *January Plan*
-a. Construct a chicken coop.
-b. Complete Masters application.
-c. Porfolio website redesigning.
-d. 1 book purchased(Enchiridion).
-e. T3 exam done.
-f. Job application
+- Construct a chicken coop.
+- Complete Masters application.
+- Porfolio website redesigning.
+- 1 book purchased(Enchiridion).
+- T3 exam done.
+- Job application.
+- API lessons.
 
-01/01/24
+_01/01/24_
 I will begin the day on a high note with huge expectation from my career and personal goals.I want to end this year better than the last year with more real life projects and wiser.
+_02/01/24_
+I was supposed to travel on this day but took my day off. We went to the farm to cut down maize stalks for our dairy cows; It was not an easy job.
+_03/01/24_
+Travelled from home yesterday using a tourist vehicle.I arrived at around 10:00 PM 
