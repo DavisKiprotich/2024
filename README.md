@@ -44,3 +44,5 @@ _02/01/24_
 I was supposed to travel on this day but took my day off. We went to the farm to cut down maize stalks for our dairy cows; It was not an easy job.
 _03/01/24_
 Travelled from home yesterday using a tourist vehicle.I arrived at around 10:00 PM 
+_04/01/24_
+Had a busy day delivering invoices to upper Kabete and school of Engineering. I also went to uniserv with Tony to enquire about a possibility of joining one of the institutions in Australia for my masters program but it turned out that one of my favorite institutions currently has some restrictions regarding the Masters program.
