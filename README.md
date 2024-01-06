@@ -46,3 +46,7 @@ _03/01/24_
 Travelled from home yesterday using a tourist vehicle.I arrived at around 10:00 PM 
 _04/01/24_
 Had a busy day delivering invoices to upper Kabete and school of Engineering. I also went to uniserv with Tony to enquire about a possibility of joining one of the institutions in Australia for my masters program but it turned out that one of my favorite institutions currently has some restrictions regarding the Masters program.
+_05/01/24_
+I got a pay raise yesterday. The company wants to add another employee too ,it looks they are gaining more profits and planning for much more.Moreover, The city was flooded due to heavy rains in the afternoon.
+_06/01/24_
+
