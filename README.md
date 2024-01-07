@@ -49,4 +49,7 @@ Had a busy day delivering invoices to upper Kabete and school of Engineering. I 
 _05/01/24_
 I got a pay raise yesterday. The company wants to add another employee too ,it looks they are gaining more profits and planning for much more.Moreover, The city was flooded due to heavy rains in the afternoon.
 _06/01/24_
+I called Teddy yesterday to enquire about the possibility of joining One of the institutions in Perth and he told there is a possibility of changing schools once you are in Australia.I also change the hard disk of my machine and it is working perfectly.
+_07/01/24_
+I will be meeting up with Kurgat today.Let me do my todos first before commencing.
 
