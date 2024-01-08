@@ -52,4 +52,7 @@ _06/01/24_
 I called Teddy yesterday to enquire about the possibility of joining One of the institutions in Perth and he told there is a possibility of changing schools once you are in Australia.I also change the hard disk of my machine and it is working perfectly.
 _07/01/24_
 I will be meeting up with Kurgat today.Let me do my todos first before commencing.
+_08/01/24_
+I went to delever an invoice at KEMSA but did not mmeet up with Irene,the human resource manager.I had as chat with her colleague, Collins who seems to have worked for quit sometime there. I am currently filling an employee details form after being confirmed by my company on Friday.
+
 
