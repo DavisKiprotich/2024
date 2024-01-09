@@ -54,5 +54,6 @@ _07/01/24_
 I will be meeting up with Kurgat today.Let me do my todos first before commencing.
 _08/01/24_
 I went to delever an invoice at KEMSA but did not mmeet up with Irene,the human resource manager.I had as chat with her colleague, Collins who seems to have worked for quit sometime there. I am currently filling an employee details form after being confirmed by my company on Friday.
-
+_09/01/24_
+Currently in office trying to figure out what to do. My colleagues have not arrived ,it will a long day full of creativity and passion. 
 
